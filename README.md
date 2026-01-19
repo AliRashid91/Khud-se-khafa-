@@ -1,3 +1,4 @@
+kitna din me 
 aakhir 
 kyu
 # Khud-se-khafa-
